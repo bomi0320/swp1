@@ -1,3 +1,3 @@
-20212957 Bomi Kwon
+20212957    Bomi Kwon
 
 Kookmin Univ. SW
